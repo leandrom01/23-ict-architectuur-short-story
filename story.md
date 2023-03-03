@@ -23,3 +23,4 @@ And though Mei knew that she had risked everything to keep her beloved bird safe
 
 # HAMZA IS EEN HMAR
 ![image](https://user-images.githubusercontent.com/91462822/222704452-7efb0da8-81b8-4938-9a30-1df1749784d9.png)
+hamza's nek doet pijn
