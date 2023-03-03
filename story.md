@@ -1,4 +1,6 @@
-# hamza is een hmar 
+# DIT IS MIJN GLOEDNIEUWE SHORT STORY
+Autheur: Leandro Delgado Monteiro
+
 Once upon a time, in a small village nestled deep in the mountains, there lived a young girl named Mei. She was known throughout the village for her kind heart and gentle nature. One day, as she was wandering through the forest, she came across a wounded bird lying on the ground.
 
 Without hesitation, Mei scooped up the bird and cradled it in her arms. She took the bird back to her home and spent countless hours nursing it back to health. As the days passed, Mei grew increasingly attached to the bird, and she knew that she could never let it go.
